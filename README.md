@@ -2,13 +2,10 @@
 👥 Team
 Team Lead:
 
-SRIRAMAN R (6203@velsrscollege.com)<BR>
+DIVYADHARSHINI S (divyas67510@gmail.com)
 Members:
 
-SHAM GANESH D (6198@velsrscollege.com)<BR>
-SABARI RAJ R (6186@velsrscollege.com)<BR>
-KARTHIKEYAN R (6143@velsrscollege.com)<BR>
-DHARANI DHARAN S (6106@velsrscollege.com)<BR>
+
 
 
 
